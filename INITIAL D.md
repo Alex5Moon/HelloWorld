@@ -9,3 +9,5 @@
 > 神，以前也是人，只是他做了人所做不到的事情，于是就被称之为神。
 > 
 > [Initial D](http://modify.modiauto.com.cn/planning/1085/27959.html)
+> 
+> 秋名山      藤原拓海
