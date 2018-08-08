@@ -6,6 +6,9 @@
 >
 - 相逢好似初相识，到老终无怨恨心。
 >
+- 结交须胜己，似我不如无。
+- 三人行必有我师，择其善者而从之，其不善者而改之。
+>
 -  
 >
 ### [晓事](https://github.com/lu666666/HelloWorld/blob/master/Liang%20Sir/liangzhu/03/readme.md)
