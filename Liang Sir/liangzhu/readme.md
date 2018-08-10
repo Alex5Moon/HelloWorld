@@ -24,7 +24,24 @@
 >
 ### [晓事](https://github.com/lu666666/HelloWorld/blob/master/Liang%20Sir/liangzhu/03/readme.md)
 >
--  
+- 一人不得二人计，宋江难结万人缘。 
+>
+- 世人若要人情好，赊去物品莫取钱。
+>
+- 无求到处人情好，不饮任他酒价高。
+- 人不走不亲，水不打不浑。
+>
+- 力微休负重，言轻莫劝人。
+- 一言不中，千言不用。
+>
+- 听君一席话，胜读十年书。 
+>
+- 得宠思辱，居安思危。 
+- 人无远虑必有近忧
+- 未晚先投宿，鸡鸣早看天。
+- 晴带雨伞，饱带饥粮。
+>
+- 养男莫听狂言，养女莫叫离母。 
 >
 ### [修心](https://github.com/lu666666/HelloWorld/blob/master/Liang%20Sir/liangzhu/04/readme.md)
 >
