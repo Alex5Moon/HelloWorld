@@ -129,7 +129,22 @@
 >
 ### 如今我站在人生的十字路口??????
 >
-
+```
+  when the shit hits the fan, some guys run and some guys stay.
+  he's facing the fire,
+  ...
+  Now I have come to the crossroads in my life.
+  I always knew what the right path was.
+  Without exception, I knew, but I never took it.
+  You know why?
+  It was too damn hard.
+  Now he's ... 
+  He has chosen a path.It's the right path.
+  It's a path made of principle that leads to character.
+  ...
+  
+```
+>
 
 
 
